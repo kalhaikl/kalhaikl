@@ -1,5 +1,5 @@
 # 💫 About Me:
-Saya adalah mahasiswa yang senang dalam mempelajari bahasa pemrograman. Menulis kode, membangun proyek, dan eksplorasi teknologi adalah hal yang saya nikmati setiap hari.<br><br>
+Just an ordinary boy.<br><br>
 
 
 ## 🌐 Socials:
